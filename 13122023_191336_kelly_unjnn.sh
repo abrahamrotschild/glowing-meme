@@ -1,0 +1,1 @@
+Every year, surgical tools are left in approximately 1,500 patients in the USA. Fatter patients are more prone to having a surgical tool left inside of them due to the additional amount of space in their bodies
