@@ -1,0 +1,1 @@
+A Chinese Scientist discovered that the Earth is round during the Han Dynasty by measuring the sun and moon's path in the sky. He recorded this fact down in the imperial records but went unnoticed until it was unearthed recently but Chinese archaeologists.
