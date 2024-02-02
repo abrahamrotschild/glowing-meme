@@ -1,0 +1,1 @@
+While still in college, Bill Gates and Paul Allen once built a special purpose machine called "Traff-O-Data." It was a machine that would analyze information gathered by traffic monitors. They never found any buyers.
