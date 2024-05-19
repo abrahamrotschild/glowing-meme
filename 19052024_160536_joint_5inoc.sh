@@ -1,0 +1,1 @@
+In the world, the United States and France have the most pet dogs. Approximately one out of every three families has a pet dog. Switzerland and Germany are the lowest only having one dog per every ten families
